@@ -219,4 +219,4 @@ UEFA EURO 2008 is available as a full free version, including all features and u
 Don't miss your chance to relive the excitement of UEFA EURO 2008! Download now and lead your team to victory!
 
 ---
-**Last updated:** 2026-11-11 23:20:30 UTC
+**Last updated:** 2026-11-12 05:58:46 UTC
